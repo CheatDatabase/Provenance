@@ -1,4 +1,4 @@
 # Provenance cheats
 =======
 
- ![alt text](https://images.app.goo.gl/ptgPRbSYYSFSMAzx5 "Screenshot")
+ ![alt text](https://jamesaddyman.com/images/provenance.jpg "Screenshot")
